@@ -1,5 +1,5 @@
+Hi, I’m Passionate about working with technologies
 - 🎓 Post-Graduated from Jawaharlal Nehru Technological University, Kakinada
-- 👋 Hi, I’m Passionate about working with technologies
 - ✔️ Ability to work with cross-functional teams in, fast-paced environment, and adopt new technologies.
 - 👀 I’m interested in to build applications like Amazon and instagram pages
 - 💞️ I’m looking to collaborate on FULL STACK PROJECTS
